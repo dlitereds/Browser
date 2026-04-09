@@ -1,2 +1,3 @@
-# https-iqtest.shela.nu-
+# browser
 https://iqtest.shela.nu/
+https://petezahgames.com
