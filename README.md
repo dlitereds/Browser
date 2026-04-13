@@ -9,3 +9,4 @@ https://sunsett.cc
 https://reading.undetected.lol
 https://nana.rh-1.govt.hu/
 https://tinf0il.tech
+https://phosphur.etcherfx.dev
