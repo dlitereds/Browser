@@ -1,4 +1,5 @@
 # Web Browsers
+https://sharer.of.proxy
 https://apbio.b-cdn.net
 https://petezahgames.com
 https://browser.rammerhead.org
