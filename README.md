@@ -1,5 +1,5 @@
 # Web Browsers
-**UNBLOCKED**: **https://apbio.b-cdn.net** https://jhgotchu.joe.dj
+**UNBLOCKED**: **https://apbio.b-cdn.net** https://iamnotcute.guitarhaven.com
 
 EXCLUSIVE AT HOME: https://petezahgames.com
 https://browser.rammerhead.org
