@@ -1,5 +1,5 @@
 # Web Browsers
-**UNBLOCKED**: **https://apbio.b-cdn.net** https://lickingheights.crabdance.com
+**UNBLOCKED**: **https://apbio.b-cdn.net** https://jhgotchu.joe.dj
 
 EXCLUSIVE AT HOME: https://petezahgames.com
 https://browser.rammerhead.org
