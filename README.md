@@ -1,5 +1,5 @@
 # Web Browsers
-**UNBLOCKED**: **https://iamnotcute.guitarhaven.com** https://chemicaljs.github.io https://nautilus-os.vercel.app
+**UNBLOCKED**: **https://iamnotcute.guitarhaven.com** https://boltunblocker.com
 
 EXCLUSIVE AT HOME: https://petezahgames.com
 https://browser.rammerhead.org
