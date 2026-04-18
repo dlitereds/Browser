@@ -6,3 +6,4 @@ https://browser.rammerhead.org
 https://wea-f.github.io/Norepted/
 https://yeet.mustline.cn
 https://boltunblocker.com
+https://invisiproxy.com
