@@ -4,6 +4,7 @@
 EXCLUSIVE AT HOME: https://petezahgames.com
 https://browser.rammerhead.org
 https://wea-f.github.io/Norepted/
+https://brighthub7794.b-cdn.net/
 https://yeet.mustline.cn
 https://invisiproxy.com
 https://nautilus-os.vercel.app
